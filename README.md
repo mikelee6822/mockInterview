@@ -22,7 +22,7 @@ https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w4004-20083289961.3.2742df13VM5
 
 可以根据您的要求，问更多的 behavior questions 或者 coding questions
 
-·          
+   
 
 也可以根据您的要求，针对您即将面试的公司，问高频题
 
