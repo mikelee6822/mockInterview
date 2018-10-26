@@ -27,5 +27,3 @@ https://item.taobao.com/item.htm?spm=a1z10.1-c-s.w4004-20083289961.3.2742df13VM5
 也可以根据您的要求，针对您即将面试的公司，问高频题
 
 在Mock Interview完成以后，我会直接给反馈
-
-欢迎联系咨询
