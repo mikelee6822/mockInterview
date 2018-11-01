@@ -2,7 +2,7 @@
 
 英文 FLAG 计算机CS模拟面试 mock interview
 
-欢迎咨询微信19795572282
+欢迎咨询微信weChatID mikelee6822或发送email至mikelee6822@gmail.com
 
 https://world.taobao.com/item/580407546487.htm
 
